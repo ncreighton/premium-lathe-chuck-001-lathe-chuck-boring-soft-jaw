@@ -1,0 +1,2 @@
+# premium-lathe-chuck-001-lathe-chuck-boring-soft-jaw
+Stop losing time hunting for chuck specs, jaw dimensions, and boring parameters. The Lathe Chuck Boring &amp; Soft Jaw Craft Hub turns Notion into your machine shop's memory, with every detail at your fingertips.  This Notion template solves the chaos of paper notes, scattered spreadsheets, and forgotten setups. It gives you a centralized, searchable s
